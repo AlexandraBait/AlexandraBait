@@ -10,13 +10,15 @@ I love:
 - Sleep              
 - Internet
 
-Basically, i love everything for my _existence_.      
+Basically, I love everything that any normal person would need for _existence_.      
 
 I hate:
 
 - Homework
 - Deadlines
 - People, who are *jerks*
+
+Please, mind the _third clause_. 
 
 ## Here is my doggy. Take a look at it:
 
@@ -26,6 +28,9 @@ Cute, isn't it? But ***beware***, because my dog can ***destroy*** you with its 
 
 ***
 
+## no idea
+
+I have ***no idea*** what else to tell you. That is why feel free to ***contact me***, if you want to ask something.
 Here you can find me:
 
 + <https://vk.com/id_albait>
