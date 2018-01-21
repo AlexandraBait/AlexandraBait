@@ -56,3 +56,8 @@ Here you can find me: :memo:
 + <https://vk.com/id_albait>
 + <https://www.instagram.com/?hl=ru> 
 
+***
+
+Lastly, here's the quote from my favorite YouTuber - **PewDiePie** :
+
+> Don't be a salad, be the best damn broccoli you could ever be.
