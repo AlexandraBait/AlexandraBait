@@ -2,7 +2,7 @@
 
 ### Hello world! :raised_hand:
 My name is **Alexandra**. I am ~~16~~ **17** years old (keep forgetting, that I am almost an _adult_)  
-I am a **student** at **Higher School of Economy**.
+I am a **student** at **Higher School of Economics**.
 
 I love:      :heart_eyes:             
 
@@ -29,11 +29,14 @@ Basically, I love everything that any normal person would need for _***EXISTENCE
 
 I hate: :rage:
 
-- Homework
-- Deadlines
-- People, who are *jerks*
+1. Homework
+* Practice of speech is killing me
+2. Deadlines
+* My university is __killing me__
+3. People, who are *jerks*
+* My friends are... ___***Fine***___
 
-Please, mind the _third clause_. 
+Sorry, I've got bad sense of humour :joy::sweat_smile::grimacing:
 
 
 
