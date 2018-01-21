@@ -22,9 +22,9 @@ Basically, I love everything that any normal person would need for _***EXISTENCE
 
 |    | Russian | English      | German                |
 |----|:-------:|--------------|-----------------------|
-| N1 | ---     | Paramore     | Mark Forster          |
-| N2 | ---     | All Time Low | Matthias Schweighöfer |
-| N3 | ---     | Zedd         | Amanda                |
+| N1 | no.     | Paramore     | Mark Forster          |
+| N2 | NOPE!   | All Time Low | Matthias Schweighöfer |
+| N3 | g0 AwAY | Zedd         | Amanda                |
 
 
 I hate: :rage:
