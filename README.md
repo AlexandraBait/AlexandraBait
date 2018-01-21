@@ -1,7 +1,7 @@
 # Alexandra 
 
 ### Hello world! :raised_hand:
-My name is **Alexandra**. I am ~~16~~ **17** years old (keep forgetting, that I am almost an _adult_)  
+My name is **Alexandra**. I am ~~16~~ ~~18~~ **17** years old (keep forgetting, that I am almost an _adult_)  
 I am a **student** at **Higher School of Economics**.
 
 I love:      :heart_eyes:             
